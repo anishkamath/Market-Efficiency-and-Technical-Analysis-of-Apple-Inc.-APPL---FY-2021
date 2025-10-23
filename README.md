@@ -1,0 +1,1 @@
+# Market-Efficiency-and-Technical-Analysis-of-Apple-Inc.-APPL---FY-2021
